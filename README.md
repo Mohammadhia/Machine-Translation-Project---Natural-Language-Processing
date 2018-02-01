@@ -1,0 +1,2 @@
+# Machine-Translation-Project---Natural-Language-Processing
+A project in which a direct machine translation system is built to translate from Spanish to English using a limited, hand-picked bilingual dictionary (resulting in subpar accuracies). The IBM Model 1 algorithm was also implemented as another machine translation system. Select strategies were used in an attempt to improve accuracies such as using stemmers of words being translated.
