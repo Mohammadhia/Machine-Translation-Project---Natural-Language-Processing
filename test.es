@@ -1,0 +1,5 @@
+El énfasis que su familia aplicaba a la inteligencia y su observación de los estereotipos negativos hacia la gente del sur , hicieron que Colbert intentase suprimir su acento sureño mientras aún era bastante joven .
+De pequeño , observó que la gente del sur era representada como menos inteligente que otros personajes en televisión ; para evitar ese estereotipo , imitaba la forma de hablar de los presentadores de noticias estadounidenses .
+Mientras que Colbert cómicamente declara que su apellido es francés , tiene una decimoquinta o decimosexta parte de descendencia irlandesa ( una de sus tatarabuelas paternas era de descendencia alemana e inglesa ) .
+Michael , el personaje central de la serie , fue el director de la rama de Scranton de papel y la distribución de la empresa Dunder Mifflin Inc.
+En la séptima temporada , Michael decidió mudarse con su novia Holly Flax a Colorado para ayudarle a cuidar de sus ancianos padres .
